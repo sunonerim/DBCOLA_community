@@ -1,3 +1,3 @@
 DBCOLA community version
 
-It is ONLY FOR PERSONAL USES.
+It is FOR PERSONAL USE ONLY.
